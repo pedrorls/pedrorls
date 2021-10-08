@@ -1,4 +1,4 @@
-### Hey! I am Pedro Silva! 👋
+### Hey! 👋
 
 <hr>
 
